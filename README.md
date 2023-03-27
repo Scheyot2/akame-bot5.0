@@ -1,4 +1,4 @@
-<img src="https://readme-typing-svg.herokuapp.com/?font=mono&size=30&duration=4000&color=00FFFF&center=falso&vCenter=falso&lines=𝐀𝐊𝐀𝐌𝐄-𝐁𝐎𝐓+𝐕5.0＼⁠(⁠^⁠o⁠^⁠)⁠／;𝐁𝐎𝐓+𝐌𝐔𝐋𝐓𝐈+𝐃𝐄𝐕𝐈𝐂𝐄;1000+𝐂𝐎𝐌𝐀𝐍𝐃𝐎𝐒+2023;𝕸.𝕾𝖈𝖍𝖊𝖞𝖔𝖙-𝕯𝖔𝖒𝖎𝖓𝖆✰✰✰✰✰">      
+<img src="https://readme-typing-svg.herokuapp.com/?font=mono&size=30&duration=4000&color=FF0000&center=falso&vCenter=falso&lines=𝐀𝐊𝐀𝐌𝐄-𝐁𝐎𝐓+𝐕5＼⁠(⁠^⁠o⁠^⁠)⁠／;𝐁𝐎𝐓+𝐌𝐔𝐋𝐓𝐈+𝐃𝐄𝐕𝐈𝐂𝐄;1000+𝐂𝐎𝐌𝐀𝐍𝐃𝐎𝐒+2023;𝕸.𝕾𝖈𝖍𝖊𝖞𝖔𝖙-𝕯𝖔𝖒𝖎𝖓𝖆✰✰✰✰✰">      
 
 <h1 align="center">
 <p>
